@@ -1,3 +1,3 @@
-# Coloque seu nome aqui!
+# Laura Naomi Seto 
 
 Danilo Camargo Bueno
